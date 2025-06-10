@@ -8,9 +8,9 @@ Dr. Nikoli Attai
 Dr. Nikoli Attai is an Assistant Professor of Race, Gender, and Ethnic Studies. He received his PhD in Women and Gender Studies from the University of Toronto, a Master of Philosophy in Cultural Studies, and a Bachelor of Arts in Media and Communication from the University of the West Indies.
 
 ## Contact information
-nikoli.attai#gmail.com
-
-www.nikoliattai.com
+- nikoli.attai#gmail.com
+- www.nikoliattai.com
+  
 ## Education
 2019     PhD Women and Gender Studies, University of Toronto.
 2013     MPhil Cultural Studies, University of the West Indies.
