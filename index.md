@@ -14,11 +14,11 @@ nikoli.attai@gmail.com
 www.nikoliattai.com
   
 ## Education
-2019     PhD Women and Gender Studies, University of Toronto
+2019&nbsp;PhD Women and Gender Studies, University of Toronto
 
-2013     MPhil Cultural Studies, University of the West Indies
+2013&nbsp;MPhil Cultural Studies, University of the West Indies
 
-2007     B.A. Media and Communication, University of the West Indies
+2007&nbsp;B.A. Media and Communication, University of the West Indies
 
 ## Academic Positions
 2022 – Present     Assistant Professor, Race, Gender, and Ethnic Studies, Colorado State University
