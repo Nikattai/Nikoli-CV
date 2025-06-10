@@ -9,7 +9,7 @@ Dr. Nikoli Attai is an Assistant Professor of Race, Gender, and Ethnic Studies. 
 
 ## Contact information
 
-nikoli.attai#gmail.com
+nikoli.attai@gmail.com
 
 www.nikoliattai.com
   
@@ -43,11 +43,11 @@ Nikoli Attai. 2023. Defiant Bodies: Making Queer Community in the Anglophone Car
 
 ### Refereed Journal Articles
 
-Nikoli Attai. 2017. “Let’s Liberate the Bullers! Toronto Human Rights Activism and Implications for Caribbean Strategies.” In Journal of Eastern Caribbean Studies Volume 42 No. 3. (https://www.jecsonline.com/journals/volume-42-no-3-december-2017/)
+Nikoli Attai. 2017. “Let’s Liberate the Bullers! Toronto Human Rights Activism and Implications for Caribbean Strategies.” In [Journal of Eastern Caribbean Studies Volume 42 No. 3.](https://www.jecsonline.com/journals/volume-42-no-3-december-2017/)
 
 ### Refereed Chapters in Books
 
-Nikoli Attai. 2024. “Global North Homoimperialism and the Conundrum of Queer Asylum.” In On Othering Processes and Politics of Unpeace, edited by Yasmin Saskia and Chad Haines. Athabasca University Press, Canada. (https://doi.org/10.15215/aupress/9781771993869.01)
+Nikoli Attai. 2024. “Global North Homoimperialism and the Conundrum of Queer Asylum.” In On Othering Processes and Politics of Unpeace, edited by Yasmin Saskia and Chad Haines. [Athabasca University Press, Canada.](https://doi.org/10.15215/aupress/9781771993869.01)
 
 Nikoli Attai, K. Nandini Ghisyawan, Rajanie Preity Kumar and Carla Moore, 2020. “Tales from the Field: Myths and Methodologies for Researching Same-Sex Desiring People in the Caribbean.” In Beyond Homophobia: Centering LGBT Experiences in the Caribbean, edited by Moji Anderson and Erin Macleod. UWI Press, Kingston Jamaica. ISBN 13:9789766407445.
 
@@ -57,19 +57,19 @@ Cornel Grey and Nikoli Attai. 2019. “Revisiting LGBT Rights in the Caribbean: 
 
 ### Book Reviews
 
-NWIG 97-1&2 (2023) Krystal Nandini Ghisyawan, Erotic Cartographies: Decolonization and the Queer Caribbean Imagination. New Brunswick NJ: Rutgers University Press, 2022. xii + 252pp. (Paper US$ 39.95) (https://doi.org/10.1163/22134360-09701003)
+NWIG 97-1&2 (2023) Krystal Nandini Ghisyawan, Erotic Cartographies: Decolonization and the Queer Caribbean Imagination. New Brunswick NJ: Rutgers University Press, 2022. xii + 252pp. [(Paper US$ 39.95)](https://doi.org/10.1163/22134360-09701003)
 
-Island Studies Journal, 17(1), 2022, 306-319 Lyndon Gill (2018) Erotic Islands: Art and Activism in the Queer Caribbean. 312 pp. Durham, Duke University Press. ISBN: 978-0822368700 (Paperback). US$25.95. (https://islandstudiesjournal.org/issue/8165)
+Island Studies Journal, 17(1), 2022, 306-319 Lyndon Gill (2018) Erotic Islands: Art and Activism in the Queer Caribbean. 312 pp. Durham, Duke University Press. ISBN: 978-0822368700 [(Paperback). US$25.95.](https://islandstudiesjournal.org/issue/8165)
 
 ### Newspaper Articles
 
-Attai. Nikoli. 2024. Ordinary Landscapes of Violence in the Lives of Guyana’s Women-Loving Women. Stabroek News – In the Diaspora. October 14, 2024. (https://www.stabroeknews.com/2024/10/14/features/in-the-diaspora/ordinary-landscapes-of-violence-in-the-lives-of-guyanas-women-loving-women-nikoli-attai/)
+Attai. Nikoli. 2024. Ordinary Landscapes of Violence in the Lives of Guyana’s Women-Loving Women. [Stabroek News – In the Diaspora. October 14, 2024.](https://www.stabroeknews.com/2024/10/14/features/in-the-diaspora/ordinary-landscapes-of-violence-in-the-lives-of-guyanas-women-loving-women-nikoli-attai/)
 
-Attai, Nikoli. 2018. Love Wins –Resisting Hatred, Building Community and Forging Change in the Caribbean. Stabroek News – In the Diaspora. April 16, 2018. (https://www.stabroeknews.com/2018/features/in-the-diaspora/04/16/love-wins-resisting-hatred-building-community-and-forging-change-in-the-caribbean/)
+Attai, Nikoli. 2018. Love Wins –Resisting Hatred, Building Community and Forging Change in the Caribbean. [Stabroek News – In the Diaspora. April 16, 2018.](https://www.stabroeknews.com/2018/features/in-the-diaspora/04/16/love-wins-resisting-hatred-building-community-and-forging-change-in-the-caribbean/)
 
 ### Reports
 
-Ghisyawan, Krystal, Darren J. Glenn, and Nikoli Attai. 2017. “Trinidad and Tobago School Climate Report: Bullying and Gender-Based Violence in Secondary Schools.” The Silver Lining Foundation in Partnership with the United Nations Educational, Scientific and Cultural Organization, Associated Schools Network Trinidad and Tobago, Port of Spain, Trinidad and Tobago. (https://silverliningtt.com/2016-school-climate-report/)
+Ghisyawan, Krystal, Darren J. Glenn, and Nikoli Attai. 2017. “Trinidad and Tobago School Climate Report: Bullying and Gender-Based Violence in Secondary Schools.” [The Silver Lining Foundation in Partnership with the United Nations Educational, Scientific and Cultural Organization, Associated Schools Network Trinidad and Tobago, Port of Spain, Trinidad and Tobago.] (https://silverliningtt.com/2016-school-climate-report/)
 
 ## Manuscripts Accepted for Publication (in press)
 
@@ -100,7 +100,8 @@ Attai, Nikoli and Angelique Nixon. “Erotic Defiance, Queer Belonging, and Sexu
 
 ## My links
 
-[Dr. Nikoli Attai](https://www.libarts.colostate.edu/people/nikattai/)
+[Colorado State University Faculty Profile](https://www.libarts.colostate.edu/people/nikattai/)
 
-[Dr. Nikoli Attai](https://www.linkedin.com/in/dr-nikoli-attai-803b8315)
+[Linkedin Profile](https://www.linkedin.com/in/dr-nikoli-attai-803b8315)
 
+[Queer Archives of Trinidad and Tobago](https://www.queerarchivestt.org)
