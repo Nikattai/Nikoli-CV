@@ -9,6 +9,7 @@ Dr. Nikoli Attai is an Assistant Professor of Race, Gender, and Ethnic Studies. 
 
 ## Contact information
 nikoli.attai#gmail.com
+
 www.nikoliattai.com
 ## Education
 2019     PhD Women and Gender Studies, University of Toronto.
